@@ -1,4 +1,4 @@
-
+pull lucky blocks Scripts instant offers the most advanced pull lucky blocks Script, with auto-collect and custom skins. Perfect for dominating any
 
 
 
